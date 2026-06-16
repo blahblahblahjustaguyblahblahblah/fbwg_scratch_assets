@@ -1,0 +1,1 @@
+# fbwg_scratch_assets
